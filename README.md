@@ -6,3 +6,4 @@ ok bye.
 list----------------
 maggi
 noodles
+--------------before 0/19/2021..now hotel reopening tomorrow....
